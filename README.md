@@ -1,8 +1,8 @@
 # Python-coding
 <br>
-All the best you all for coding 
+1️⃣ All the best you all for coding 
 <br>
-Is par hi practice kiya jayega coding ka
+2️⃣ Is par hi practice kiya jayega coding ka
 <br>
-Aur project ka bhi par he dekh lenge
+3️⃣ Aur project ka bhi par he dekh lenge
 <br>
